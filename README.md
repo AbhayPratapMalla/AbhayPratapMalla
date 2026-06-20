@@ -26,6 +26,5 @@ To become a **Supply Chain Analyst** specializing in:
 
 ## 📫 Connect with Me
 - LinkedIn: www.linkedin.com/in/abhay-pratap-malla-295a1a303
-- Email: abhaypratapmalla20@gmail.com
 
 ⭐ *Always learning, building, and improving one project at a time.*
