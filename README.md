@@ -3,6 +3,7 @@
 📊 Aspiring Supply Chain Analyst  
 📍 Passionate about data-driven decision making in supply chain operations  
 🚀 About Me
+
 I am currently pursuing my MSc in Logistics & Supply Chain Management and building strong analytical skills to transition into a Supply Chain Analyst role.
 I enjoy working with data, solving operational problems, and improving efficiency in supply chain systems using analytics and technology.
  🧠 Skills I'm Learning
