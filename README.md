@@ -29,6 +29,3 @@ To become a **Supply Chain Analyst** specializing in:
 - Email: abhaypratapmalla20@gmail.com
 
 ⭐ *Always learning, building, and improving one project at a time.*
-
-
-Here are some ideas to get you started:
